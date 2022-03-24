@@ -1,2 +1,2 @@
 # Back-to-the-future
-The future si really good
+The future is really good
